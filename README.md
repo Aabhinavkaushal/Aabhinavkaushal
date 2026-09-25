@@ -1,4 +1,4 @@
-**Passionate Indian-American Entrepreneur Driving Web3 Innovation**
+**Passionate  Entrepreneur Driving Deep Tech Innovation**
 
 Greetings! I'm Abhinav Kaushal, a dynamic and forward-thinking Indian-American entrepreneur with a laser focus on harnessing the power of Web3 and blockchain technology to create ingenious solutions for real-world challenges. With an unyielding commitment to innovation and a deep-rooted understanding of both technology and societal needs, I'm on a mission to reshape industries, transform lives, and drive meaningful change.
 
